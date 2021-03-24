@@ -1,1 +1,0 @@
-# reklama-yandex.github.io
